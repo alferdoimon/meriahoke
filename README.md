@@ -1,1 +1,1 @@
-# meriahoke
+# slot88ku.awiki.org
